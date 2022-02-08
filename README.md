@@ -1,1 +1,1 @@
-# http://vanhtv.github.io
+# http://vietanhiptv.duckdns.org
